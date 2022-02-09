@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @jarbytorrejadacillo
-- 👀 I’m interested in Creating Web Apps, Mobile and Desktop.
+- 👀 I’m interested in Creating Apps for Mobile, Web and Desktop.
 - 🌱 I’m currently learning the basics.
 - 💞️ I’m looking to collaborate on might understand my english barok
 - 📫 How to reach me just direct message.
